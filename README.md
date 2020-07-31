@@ -33,4 +33,4 @@ weirdly uncomfortable with.
 I've got struggles and opinions and eccentricities and I find it soul-crushing
 to pretend otherwise (and believe me I have tried for many years). If you can't
 handle that, we might not get along. Don't let that dissuade you from giving us
-a chance though.
+a chance though. I'm generally accommodating to a fault.
